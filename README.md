@@ -34,6 +34,7 @@ We're proud to coordinate our charity program monthly efforts as an extension of
 SPONSORSHI PROGRAM: OPEN TO PUIBLIC
 
 •	USHAREIT.ORG
+* DHOSTLAND.COM
 •	DHOTSPOT.NET
 •	MY-CASFLOWSYSTEM.ORG
 •	C-RINGTECHNOLOGIES..NET
