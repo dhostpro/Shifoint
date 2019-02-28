@@ -1,21 +1,24 @@
 # Shifoint
 
-Shifoint Crypto & Rewarrds Point Coin
+Shifoint Crypto & Rewards Point Coin
 
 Shifoint-R$P (3D5D Shift Reward Points)
 3D5DSHIFT DUAL PURPOS COIN - Shift's Reward Points (Shifoints)
 
-  •	ISSUENCE: Free OR Purchase
+  •	ISSUENCE: Free OR Purchase In Shifoint Network
+  * DELIVERY: Emidiatly To Account or (R$P - Reward Digital Card)
   •	REWARDED POINTS: 1/1
   •	WEBSITE VALUE: 1 R$P/.10
-  •	TRADEABLE: Yes
-  •	EXPIRATION: Never
+  * SRP-DIGITAL CARD: Diigital/Paperback Wallet (Download / Print Out)
+  •	TRADEABLE: Yes (Registered Coins)
+  * LISTED CRYPTO COINS: Trade/Buy - Face Value Rate
+  •	EXPIRATION: NO Expiration
   •	PRIVATE VALUE: Based on monetization thru our membership platform
   •	SRP PAYOUT RATE: 3/1 Wire Transfer or Direct Deposit (MONTHLY)
-  * DIGITAL WALLET: PENDDING
+  * DIGITAL WALLET: PENDDING Multi-Crypto Wallet
   •	PRIVATE OFFER: Site Members Only
   •	AWARDED: Free Based On Established Participation Program
-  •	CHARITY PROGRAM: 300 SRP Monthly Giv-A-Way (Free To All Participating Referrals)
+  •	CHARITY PROGRAM: 1000 SRP Monthly Giv-A-Way (Free To All Participating Referrals)
   
 
 DIGITAL PROJECT CRETED BY: WALLETBUILDERS.COM
